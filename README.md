@@ -1,1 +1,1 @@
-# Faculty-Summer-Training
+# Faculty Summer Training
